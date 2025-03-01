@@ -4,7 +4,7 @@
 
 ## ¿Quién soy?
 
-Hola, soy Leopoldo Chavarría pero todo el mundo me dice polo, soy estudiante de Ingeniería en Computación, actualmente estoy cursando cuarto y quinto semestre (depende la hora jajaja )
+Hola, soy Leopoldo Chavarría pero todo el mundo me dice polo, soy estudiante de Ingeniería en Computación, actualmente estoy cursando quinto y sexo semestre (depende la hora jajaja )
 
 ## Me gusta..
 
